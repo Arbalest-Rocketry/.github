@@ -16,8 +16,13 @@ view our sponsors [here](https://www.arbalestrocketry.ca/#/sponsorships)
 
 # Social Links
 Visit our website here!: https://www.arbalestrocketry.ca/
+
 Instagram: https://www.instagram.com/arbalestrocketry/?hl=en
+
 Youtube: https://www.youtube.com/@arbalestrocketry/featured
+
 Linkedin: https://www.linkedin.com/company/arbalest-rocketry/posts/
+
 Twitter: https://x.com/ArbalestRockets
+
 Email us @ communications@arbalestrocketry.com
